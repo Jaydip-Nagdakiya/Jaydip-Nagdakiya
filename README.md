@@ -49,5 +49,5 @@
 
 ### 📫 Connect With Me
 - 📧 Email: jaydipnagdakiya4@gmail.com  
-- 💼 LinkedIn: https://linkedin.com/in/jaydip-nagdakiya-4956b9361  
+- 💼 LinkedIn: https://www.linkedin.com/in/jaydip-nagdakiya/ 
 - 🌐 GitHub: https://github.com/Jaydip-Nagdakiya
